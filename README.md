@@ -1,2 +1,2 @@
-# I am currently still making this a work in progress so please be patient with me... Especially you, KIMBERLY. 
+# https://github.com/kimmynav1030/BIMD-233
 # students.washington.edu-kimmynav
